@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Luciano77ARG
-- 👀 I’m interested in Ha, radio
-- 🌱 I’m currently learning CW
+- 👀 I’m interested in HAM RADIO: LU1DLP 
+- 🌱 Search me in QRZ LU1DLP 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
